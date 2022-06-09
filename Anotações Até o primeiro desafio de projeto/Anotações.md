@@ -1,0 +1,1 @@
+Link do OneNote para acesso as anotações feitas: https://1drv.ms/u/s!AgavVKxC7M9o6FYBpxpIx7AHxyOS
